@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @aa-ericaoytas
 - 👀 I’m interested in eating sushi on a weekly basis
-- 🌱 I’m currently learning everything
+- 🌱 I’m currently learning everything (at least, that's what it feels like)
 - 💞️ I’m looking to collaborate on everything (pls help me)
 - 📫 How to reach me: Teams 👩‍💻
 
